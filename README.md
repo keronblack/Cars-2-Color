@@ -209,4 +209,4 @@ Cars 2 Color is the official full version available for free download, with all 
 Don't miss out on the fun! Download Cars 2 Color today and let your imagination run wild!
 
 ---
-**Last updated:** 2026-10-07 20:20:30 UTC
+**Last updated:** 2026-10-08 00:36:21 UTC
